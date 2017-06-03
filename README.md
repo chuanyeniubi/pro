@@ -1,3 +1,0 @@
-# zenmehuishi
-# aaa
-# qqq
